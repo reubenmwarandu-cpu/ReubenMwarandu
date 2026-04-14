@@ -35,7 +35,7 @@ Interactive 3D models of biomolecules and chemical compounds |
 *The Curious Science Teacher* – weekly reflections, lab hacks, and edtech reviews  
 
 🏅 **Certifications & PD**  
-- Teacher Service Comission - Kenya 
+- Teacher Service Commission - Kenya 
 - Lab Safety and management
 - Certified Educator under Kenyan law 
 - AP Biology & AP Chemistry Endorsed  
